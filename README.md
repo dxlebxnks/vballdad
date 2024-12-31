@@ -2,10 +2,6 @@
 Proud Volleyball Dad 🏐 supporting my player with transportation, scheduling, videography, and social media management. I coordinate travel, record games for YouTube, purchase equipment, and work with coaches to improve skills. I manage club fees, clinic schedules, and provide emotional support.
 ## About Me: Volleyball Dad 🏐
 
-As a proud Volleyball Dad, I take on a variety of responsibilities to ensure my player has the best support both on and off the court. Here's an overview of what I do:
-
-
-- **Personal**: Proud Volleyball Dad 🏐  
   - Chauffeur for practices and games 🚗  
   - Sideline supporter and loudest cheerleader 📣  
   - Snack organizer and water supplier 🥤  
